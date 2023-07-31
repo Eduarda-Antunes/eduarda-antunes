@@ -1,6 +1,6 @@
 ### Olá! Eu sou a Eduarda Oliveira
 
-- 🎈 17 anos
+- 🎈 18 anos
 - 🌍 Rio Grande do Sul
 - 🔭 Atualmente estou no Ensino Médio
 - 🌱 Cursando Tecnolgia para Internet
